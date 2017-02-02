@@ -12,3 +12,5 @@ best version ever!!!!
 
 new kyndelmisse version 2
 
+Jens Eriks kjørmes Knud
+
