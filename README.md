@@ -10,5 +10,5 @@ Jens Erik's third change 20170126
 
 best version ever!!!!
 
-new kyndelmisse version
+new kyndelmisse version 2
 
